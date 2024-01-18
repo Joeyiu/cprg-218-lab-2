@@ -113,3 +113,25 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Lemon Bars
+
+Shortbread Crust Ingrdients:
+- 1 cup (230g; 2 sticks) unsalted butter, melted
+- 1/2 cup (100g) granulated sugar
+- 2 teaspoons pure vanilla extract
+- 1/2 teaspoon salt
+- 2 cups + 2 Tablespoons (265g) all-purpose flour (spooned & leveled)
+Lemon Filling Ingredients:
+- 2 cups (400g) granulated sugar
+- 6 Tablespoons (46g) all-purpose flour
+- 6 large eggs
+- 1 cup (240ml) lemon juice (about 4 lemons)
+
+Instructions:
+1. Preheat the oven to 325°F (163°C). Line the bottom and sides of a 9×13 glass baking pan (do not use metal) with parchment paper, Set aside.
+2. Make the crust: Mix the melted butter, sugar, vanilla extract, and salt together in a medium bowl. Add the flour and stir to completely combine. The dough will be thick. Press firmly into prepared pan, making sure the layer of crust is nice and even. Bake for 20-22 minutes or until the edges are lightly browned. Remove from the oven. Using a fork, poke holes all over the top of the warm crust (not all the way through the crust). A new step I swear by, this helps the filling stick and holds the crust in place. Set aside until step 4.
+3. Make the filling: Sift the sugar and flour together in a large bowl. Whisk in the eggs, then the lemon juice until completely combined.
+4. Pour filling over warm crust. Bake the bars for 22-26 minutes or until the center is relatively set and no longer jiggles. (Give the pan a light tap with an oven mitt to test.) Remove bars from the oven and cool completely at room temperature. I usually cool them for about 2 hours at room temperature, then stick in the refrigerator for 1-2 more hours until pretty chilled. I recommend serving chilled.
+5. Once cool, lift the parchment paper out of the pan using the overhang on the sides. Dust with confectioners’ sugar and cut into squares before serving. For neat squares, wipe the knife clean between each cut. Cover and store leftover lemon bars in the refrigerator for up to 1 week.
+6. Freezing Instructions: Lemon bars can be frozen for up to 3-4 months. Cut the cooled bars (without confectioners’ sugar topping) into squares, then place onto a baking sheet. Freeze for 1 hour. Individually wrap each bar in aluminum foil or plastic wrap and place into a large bag or freezer container to freeze. Thaw in the refrigerator, then dust with confectioners’ sugar before serving.
